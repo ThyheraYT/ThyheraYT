@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ThyheraYT
+- 👀 I’m interested in videogames
+- 🌱 I’m currently learning how to breathe
+- 💞️ I’m looking to collaborate on the bed
+- 📫 How to reach me: no
